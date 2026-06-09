@@ -1,4 +1,4 @@
-
+hypershot Scripts automatic offers the most advanced hypershot Script, with anti-ban and private server access. Perfect for dominating any match.
 
 
 
